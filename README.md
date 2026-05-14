@@ -1,4 +1,4 @@
 # PRATICETHEGITHUB
 PRATICE 
 <br>
-AUTHOT :- Pankaj Jagwnai 
+AUTHOT :- Pankaj Jagwnai (Jagwani Group)
